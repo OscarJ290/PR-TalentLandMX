@@ -1,0 +1,1 @@
+Los asistentes deben de disfrutar la versatilidad y contenido quense ofrece en los talleres y platicas de todo el evento, además de aprovechar las oportunidades de empleabilidad que ofrecen las diversas compañías en los stands. :)
